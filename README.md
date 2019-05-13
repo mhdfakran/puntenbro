@@ -1,2 +1,3 @@
-# qriket
-bot qriket
+# F FOR RESPECT
+
+
